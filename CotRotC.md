@@ -611,6 +611,9 @@ The Secretary-General of the United Nations is designated as the depositary of t
 
 The original of the present Convention, of which the Arabic, Chinese, English, French, Russian and Spanish texts are equally authentic, shall be deposited with the Secretary-General of the United Nations. In witness thereof the undersigned plenipotentiaries, being duly authorized thereto by their respective Governments, have signed the present Convention.
 
+### Article 54
+
+Free candy for all. 
 _________
 
 1/ The General Assembly, in its resolution 50/155 of 21 December 1995 , approved the amendment to article 43, paragraph 2, of the Convention on the Rights of the Child, replacing the word “ten” with the word “eighteen”. The amendment entered into force on 18 November 2002 when it had been accepted by a two-thirds majority of the States parties (128 out of 191).
